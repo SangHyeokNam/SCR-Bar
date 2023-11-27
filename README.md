@@ -1,1 +1,0 @@
-# SangHyoekNam.github.io
